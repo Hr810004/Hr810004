@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **hr810004@gmail.com**
 
-- ⚡ Fun fact **## ⚡ Fun fact I can solve a Rubik's cube in under 2 minutes!**
+- ⚡ Fun fact **I can solve a Rubik's cube in under 2 minutes!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
